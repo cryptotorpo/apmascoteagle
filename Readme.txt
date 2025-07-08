@@ -2,7 +2,7 @@
 https://www.eaglemascot.space/
 
 • original telegram url
-https://t.me/EAGLE_Portal
+https://t.me/theapeagleEAGLE_Portal
 
 • original twitter url
 https://x.com/EAGLE_erc
